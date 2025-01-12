@@ -14,4 +14,4 @@ Thank you for your time, and enjoy!
 - **FieryDragon18** (Contributor and Administrator)   
 ---
 ###### **Disclaimer:**  
-###### All media are trademarked and copyrighted by **Scholastic Inc.** and are provided purely for preservation purposes. No copyright infringement is intended. All rights reserved. Photos belong to their respective owners. This project is not owned or endorsed by Scholastic Inc. **Please don’t sue us!**  
+###### All media are trademarked and copyrighted by **Scholastic Inc.** and are provided purely for preservation purposes. No copyright infringement is intended. All rights reserved. Photos belong to their respective owners. This project is not owned or endorsed by Scholastic Inc. **Please don’t sue us!**  😊
